@@ -5,3 +5,4 @@ Benni er sejere det syntes Benjamin også
 jeg kontakter mine advokater om jeres misfremstilling af mine udtalelser
 . Abdis yndlingsmad er ris og banan
 . racism in 2025
+. Randy vil crash out igen hvis han så det her
